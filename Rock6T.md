@@ -1,4 +1,4 @@
-# Rock 6 temps
+# Rock 6 temps 2
 
 Le rock 6 temps est une évolution des danses swing comme le Lindy Hop (hop hop hop le Lindy hop).
 
